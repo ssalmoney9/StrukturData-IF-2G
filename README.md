@@ -1,0 +1,1 @@
+# StrukturData-IF-2G
